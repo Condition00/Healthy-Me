@@ -1,2 +1,2 @@
-``` Made with 🩷 and ☕ by Anant, Tanvish, Mayank, Vihan
+``` Made with 🩷 and ☕ by Anant, Tanvish, Mayank, Vihan```
 
